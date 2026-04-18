@@ -1,4 +1,3 @@
-# Policy-Brief
 # EU Recovery Fund and Greek Fiscal Policy: Sustainability and Post-Funding Growth
 [View PDF](https://1drv.ms/b/c/b477acc3ceaa894e/IQCaliQLfziOTYnJ9fCohqb_AUaKkyfuMEBq3rq_j2oaNfk?e=nUnHyx)
 ### Overview
